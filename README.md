@@ -9,4 +9,4 @@ I'm not affiliated with the project and just trying it out.
 ## Misc:
 
 * Internet Computer Services: [Twitter](https://twitter.com/ICS_Web3), [Website](internetcomputerservices.com)
-* Follow Sergey: [Dribbble](https://dribbble.com/sergeymelnik), [Bēhance](https://www.behance.net/SergeyMelnik)
+* Free HTML template: [Details](http://freebiesbug.com/psd-freebies/global-futuristic-one-page-portfolio-psd-html/)
